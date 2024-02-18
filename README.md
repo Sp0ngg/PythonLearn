@@ -1,2 +1,1 @@
-First github code thing. Why did I put this basic ahh code here? No idea. But cool.
-Just here to learn.
+Kinda like a notebook for my lessons except Im starting to lose it I understand nothing please help im losing it please help im losing it please help im losing it
